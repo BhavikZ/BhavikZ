@@ -16,7 +16,7 @@
 
 - ⚡ Fun fact **I Think I am Funny**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: </h3>zadafiyabhavik.001@gmail.com
 <p align="left">
 </p>
 
